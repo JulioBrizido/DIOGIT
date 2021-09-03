@@ -2,3 +2,7 @@
 
 Strognoff de frango
 
+Pavê de chocolate
+
+Petit gateau
+
